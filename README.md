@@ -1,1 +1,1 @@
-# jessica-shei.github.io
+Map of my Favorite Californian Destinations
